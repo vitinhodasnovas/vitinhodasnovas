@@ -11,4 +11,4 @@
 
 Qualquer dúvida entre em contato
 <a href="VICTOR.BURQUE.SANTOS@escola.pr.gov.br" target="_blank"><img src="https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white&quot; target="_blank"/></a>
-![](XXXXXXXXXXXXX)
+![](https://media1.tenor.com/m/CgGf-l5pQWcAAAAC/cat-heart-eyes-yoonmilkers.gif)
